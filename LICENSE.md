@@ -1,4 +1,4 @@
-
+Enhance Microsoft To Do for macOS with Microsoft To Do for macOS rare Automation: calendar integration & OCR scanning, the #1 automation. Includes calendar integration and OCR
 
 
 
